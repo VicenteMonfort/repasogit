@@ -1,2 +1,2 @@
 Vicente Monfort
-Profesor
+Profesorgran persona
